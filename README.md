@@ -1,0 +1,1 @@
+# csapatmunka_2_csop_250210
